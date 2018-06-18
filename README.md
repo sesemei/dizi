@@ -1,7 +1,7 @@
 # dizi
 看片成人视频官方发布页
 
-更新时间：2018年4月12号
+更新时间：2018年6月
 
 狼友可以Ctrl+D收藏本页面，以便随时可以获得最新地址
 
@@ -10,8 +10,8 @@
 如果网址打不开，请多尝试几个
  
 永久域名：www.semei.xyz
- 
-www.avsstv.ga
-
-www.doufudh.ml
-www.gegelu.gq
+ 
+最新 域名：
+www.love1314.cf
+ 
+ 
